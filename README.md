@@ -1,1 +1,1 @@
-eu gostaria que voces se inspiracem.
+eu gostaria que voces se inspirasem.
